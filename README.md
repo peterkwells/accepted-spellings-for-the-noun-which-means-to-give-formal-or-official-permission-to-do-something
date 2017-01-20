@@ -1,0 +1,1 @@
+# accepted-spellings-for-the-noun-which-means-to-give-formal-or-official-permission-to-do-something
